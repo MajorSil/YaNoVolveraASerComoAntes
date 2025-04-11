@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MajorSil
 - 👀 I’m interested in movies, football and memes
 - 🌱 I’m currently learning basical programming
-- 📫 How to reach me: sigridsummers@hotmail.com
+- 📫 How to reach me: silviaxu0128@gmail.com
 - 😄 Pronouns: she
 - ⚡ Fun fact: the football is round
 
